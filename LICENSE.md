@@ -1,4 +1,4 @@
-
+smart Script for dandy's world offers the most advanced dandy's world Script, with aimbot and private server access. Perfect for dominating any match.
 
 
 
